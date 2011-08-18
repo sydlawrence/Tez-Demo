@@ -1,1 +1,1 @@
-Hi Tez it's Shaun
+it's Shaun
